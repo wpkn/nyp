@@ -9,7 +9,7 @@ meta_description: 深度解析新加坡南洋理工学院毕业证（Nanyang Pol
 
 在当今全球化的人才市场中，新加坡的教育体系凭借其严谨、实用与国际化的特征备受瞩目。作为新加坡五所政府公立理工学院之一，**新加坡南洋理工学院（Nanyang Polytechnic，简称 NYP）** 毕业证（Nanyang Polytechnic diploma）在国际就业市场和中国教育部留学服务中心均享有极高的认可度。
 
-![新加坡南洋理工学院毕业证毕业证样本及学位证文凭样本模版(Nanyang Polytechnic Diploma/Certificate of Degree)](nyp-diploma.jpg)
+![新加坡南洋理工学院毕业证及学位证文凭样本模版(Nanyang Polytechnic Diploma/Certificate of Degree)](nyp-diploma.jpg)
 
 本文将结合最新搜集的真实案例（如2024年3月份颁发的 **Diploma in Mass Media Management** 大众传媒管理文凭样本），深度为您拆解 NYP 毕业证的核心含金量、外观防伪特征，以及毕业后的升学与就业前景。
 
